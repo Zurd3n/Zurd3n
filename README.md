@@ -11,4 +11,4 @@
 - Am a musician (at least I like to think so)
 - Se como hablar español (no es perfecto pero puedo tener conversaciones con personas)
 - probably going to study psychology in college
-- am furry
+- furry
